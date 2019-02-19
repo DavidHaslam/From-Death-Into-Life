@@ -22,7 +22,7 @@ The text for FDIL at **Project Gutenberg** is eBook [#14578](http://www.gutenber
 FDIL is readily available in printed format from various suppliers, having been reprinted by several publishers since the 1960s.
 
 ## Works by the same author
-1. _Perran-Zabluloe: With an Account of the Past and Present State of the Oratory of St. Piran in the Sands, and Remarks on Its Antiquity_, 1844
+1. _Perran-Zabuloe: With an Account of the Past and Present State of the Oratory of St. Piran in the Sands, and Remarks on Its Antiquity_, 1844
 2. _The Cross and the Serpent: A Brief History of the Triumph of the Cross, Through a Long Series of Ages, in Prophecy, Types and Fulfilment_, 1846
 3. _The Threefold Gift of God: Or, Christ Jesus, the Object of Faith_, 1875
 4. _From Death Into Life: Twenty Years of My Ministry_, 1880

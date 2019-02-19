@@ -1,0 +1,76 @@
+## Chapter XXXIII.
+
+# Bible Readings
+
+## 1858-9
+
+The church (so-called) in which I now ministered had been built by persons who intended to accommodate the largest number of people for the smallest amount of money. It was scantily built, and almost square, with galleries on three sides. On the remaining one there used to be a pulpit, conspicuously placed in the middle of the wall. This important portion of the edifice was now removed to one side, to make room for a Communion table, the seats in front being arranged chancel-wise, facing one another, for the choir. This place was quite a damper to my ecclesiastical tastes besides being ugly in the extreme.
+
+I tried by putting ornamental scrolls over the windows, and by staining the glass in them, to make some improvement. I also painted a diaper pattern round the side walls and upon the high blank wall behind the Communion table exercised all the skill I possessed, but fear it was somewhat in vain, though I laboured hard. The designs looked very well on paper, but when displayed on the wall gave no satisfaction so one after another they disappeared, till my dissolving views, as they were called, ended in a large floriated cross of gold, with a monogram intertwined in it, on a dark background.
+
+When once, however, the Lord began to bless the Word, and souls were awakened, despite all anti-ecclesiastical appearances, my heart was drawn towards the ugly place, and I loved it greatly. I could never have believed that my former tastes and tendencies could have been so completely changed as they were.
+
+In those days it was a strange thing to hold an after-meeting in a church it was never done, even by the few who had such meetings. Therefore, I took the anxious ones and others to my own house for the inquiry meeting, after the evening service. Having taken up the carpet in the drawing-room, we fitted it up with chairs and forms to accommodate ninety people, while half as many more occupied the hall, and often numbers stood outside the windows. In this house it pleased God to give us very many souls, who were, brought in week by week for several months I believe every room in that house, like the rooms at Baldhu Parsonage, was consecrated as the birthplace of one or more of God’s children.
+
+The number of those who attended the after-meeting became so great, that we found it necessary to go to the large schoolroom. This place will also be remembered in eternity, and many a soul will say of it, ‘I was born there!’
+
+One night, when I returned home from a distant meeting, I was called to see a person in great distress of soul. As I went down the street at eleven o’clock, I was surprised to see lights in almost all the houses, and what was more, to hear voices in urgent and importunate prayer, as also the voice of thanksgiving. The whole street was alive, and indeed there was a most ‘joyful noise’ on every side. I was praying or rejoicing in one house or another all through the night, which was one never to be forgotten.
+
+A glorious work of salvation was going on without the extravagant noise and excitement we used to have in former years. I was exceedingly thankful for this also, and began next to consider what was to be done with these new converts. Besides inviting them to the church services, for which they needed no pressing, I urged them to read their Bibles at home, bidding them to mark any passages where they wished for explanation, that I might have something good and profitable to speak about when I visited them. Then I invited them to Bible-classes, instead of to experience meetings, which Cornish people rely upon so much. On these occasions I endeavoured to instruct the people from God’s Word, and put Christ before them as the object of faith, hope, and love. After prayer I encouraged them to ask questions, which made these gatherings interesting and also instructive on the very points upon which they required information.
+
+I found that these Bible-classes were a great blessing to those who attended them, but more than all, perhaps, to myself watering other souls with the water of life I was more abundantly watered. The questions of the people drew my attention to distinctions and differences I had not noticed before, and helped to take off the coloured glasses through which I had hitherto read the Word.
+
+I observed that the third, sixth, and twentieth chapters of St. John’s Gospel had been held and interpreted by me in a way that I now saw to be altogether wrong. I had taken the first of these as bearing on Baptism, the second on the Holy Communion, and the third on Priestly Absolution.
+
+I pondered much over these chapters, and marvelled how they could have been so diverted from their original and obvious meaning and, more wonderful still, that countless millions in Christendom had so received them for many generations. It was a bold thing, and seemingly presumptuous to suppose that I was right and all Christendom wrong but I soon found that mine was no new discovery, and that if millions who followed traditions without comparing them with the Bible, thought on one side, there were also millions who did read their Bibles, and thought on the other.
+
+It was perfectly clear, moreover, that one obvious motive or policy had dictated the false application of the three chapters. It will be observed that priest rule is established in them for, according to this teaching, no one can enter the kingdom of God without priestly operation in baptism no one abide or be fed in it without the same in Holy Communion nor any one receive absolution from sin, and final release from hell to heaven, apart from sacerdotal action.
+
+On the other hand, I saw spiritual men, as sure as they were of their own existence that their new birth took place, not at baptism, but at their conversion. Therefore, they were convinced that the third chapter of St. John, in which our Lord’s conversation with Nicodemus is recorded, refers to that spiritual change which takes place at conversion, and not to baptism, which was not even instituted for two or three years afterwards (Matt. xxvii. 19).
+
+Again, as to the sixth chapter. A spiritual man knows that he feeds continually on the body and blood of Christ, it is the ‘Bread which came down from heaven’ for him. The Lord said, ‘He that eateth Me, even he shall live by Me’ (John vi. 57). They know how they received spiritual life, and also how it is continually maintained therefore they could not allow themselves to be carried away with such a palpable fiction as transubstantiation, or any other doctrine kindred to it. The sixth chapter does not refer to the Lord’s Supper, but the Lord’s Supper refers to the reality which is mentioned in it.
+
+Lastly, as to the twentieth chapter of St. John, on the authority of which it is supposed and asserted that Christ left power with His Church and priests to forgive sins. Of this we may say, He has not delegated any such powers at all. When He gave commission to His disciples (not exclusively to the apostles), He said, ‘Lo, I am with you.’ Our power is not imparted to us from Him, but is in Him. We have no power at all, but in Him, and no grave but that which is in Christ Jesus (2 Tim. ii. 1). It is His presence, His real, promised presence by the Holy Ghost, which is spiritual power and this is given directly to individuals by God Himself, and is not transmitted through other channels.
+
+The Lord Jesus, on His resurrection day, said to His disciples, in the upper room - and, be it remembered, that all the eleven were not there (and some women may have been) - ‘Peace be unto you. Receive ye the Holy Ghost Whose soever sins ye remit, they are remitted unto them and whose soever sins ye retain, they are retained’ (John xx. 23).
+
+Is it possible or reasonable to suppose that our Lord intended by these words to constitute all that assembly absolving priests? The apostles and early Christians (both men and women) never thought so, either before or even after the day of Pentecost, when they were taught and led by the Holy Ghost. The apostles did not exercise any so-called priestly functions they all preached the Gospel, and as ministers and witnesses, declared, through Jesus Christ, the forgiveness of sins. Their testimony was then, as such testimony ever will be, the savour of life or the savour of death. It was thus they remitted and retained sins and yet not they, but God by them.
+
+While I was thus ruminating, a book came into my hands which interested me greatly. This I read and reread, and made an abstract of it. It was the ‘Life of Adelaide Newton’. What struck me in it so much was, to find that this lady was able to hold spiritual communion with God by means of a Bible only. Is it possible, I thought, to have such close communion with God, apart from the Church and her ministrations? I do not hesitate to say that this was the means, under God, of stripping off some remains of my grave-clothes, and enabling me to walk in spiritual liberty, instead of legal and sacramental bondage.
+
+Human reasoning would say, ‘What, then, is the use of ministry and sacraments? Let us dispense with them, and be independent of them altogether.’ This is no better than saying that we will continue in sin that grace may abound and the same answer which the apostle gives will do for this also ‘God forbid!’
+
+It does not follow, because some people make too much of ministry and sacraments, making them absolutely necessary to salvation, that we should, on the other hand, disregard them. There is another and happier alternative, and that is, to realize they were made for us, not we for them therefore we should not be subject to them, but rather they should be subject to us, and be used by us, not in order to obtain God’s grace and salvation, but to show that we have already done so. In our obedience to God’s ordinances, we acknowledge our allegiance to Him, and our submission to His will.
+
+For fear that my people should go off, as too many do, into disregard of the ‘means of grace’, because sacramental people make too much of them, I began a class for exposition and explanation of the Prayerbook. I commenced by showing them that the Church of England is the Lord’s candlestick in this country, not the candle, and certainly not the light, but the candlestick which the Lord set up here, possibly even as early as the days of the apostles, to show the true light, which is Christ. And though Romish corruptions supervened, it pleased God, at the time of the Reformation, to raise up men to deliver us from them, and to restore true Bible teaching.
+
+Thus I endeavoured to show them, that the system of the Church of England was one which should commend itself to their regard, as quite agreeable to Scripture and if it is not carried out according to its intention, that is not the fault of the system, but rather of those who administer it.
+
+Next, as to worship.
+
+The object of our assembling in the house of God is not, I said, so much to hear sermons, or get instruction, as in Bible, or other classes, but rather ‘to render thanks for the great benefits we have received at God’s hands, to set forth His most worthy praise, to hear His most holy word, and to ask those things which are requisite and necessary as well for the body as the soul.’ That worship is devotion towards God it consists more in giving than in getting. Some of the people were greatly interested when I pointed out to them, that the order of our Service was exactly the same as the order of their spiritual experience, in conviction, conversion, and Christian life.
+
+For example, the Morning Service begins with a sentence such as, ‘To the Lord our God belong mercies and forgivenesses, though we have rebelled against Him’ then comes the exhortation, which moves us to surrender ourselves then the confession, which is the act of surrender.
+
+Immediately after this is declared the absolution and forgiveness of sins, ‘to all who truly repent, and unfeignedly believe the Gospel.’
+
+Then comes the Lord’s Prayer, which leads us, at once, into the place of children, accepted in the Beloved then follow acts of thanksgiving-
+
+>‘Open Thou my lips, and my mouth shall show forth Thy praise.’<BR>
+‘Oh, come let us sing unto the Lord, let us heartily, rejoice in the strength of our salvation.’
+
+These, and such-like explanations, helped to enlist the interest of the people and when, as before, they only used to endure the prayers, while waiting for the sermon, now they engaged in them intelligently, and even with more delight than in extempore prayer.
+
+As to the Communion Service I bade them notice that it begins with the Lord’s Prayer, in which we draw near to our Father, not as sinners, but as His children asking for a clean heart and for grace to live according to His will then, we approach the table, unworthy, indeed, to take even the crumbs under it, but trusting in His mercy.
+
+We do not go there to offer a sacrifice of Christ’s body, but of our own, as a thanksgiving to God, offering and presenting ourselves - spirit, soul, and body - a living sacrifice to His service.
+
+Every week we took some subject from the Prayer-book, noticing the special seasons in their order, such as Advent, Christmas, Epiphany, Lent, Easter, Ascension, and Whitsuntide, each with their respective teaching.
+
+I was now happy in my work but it did not, of course, go on as sweetly as the theory sets it forth. We made, however, as straight a course as we could, under contending winds and currents. The intelligent part of my congregation, however interested they were in the work outside the church and the worship within, nevertheless, had their misgivings and doubts, which they did not hide. They said, ‘This teaching seems all true and scriptural but what will become of us if you go away, and another man comes who thinks otherwise? We have no security as in the chapels, that conversion work will go on, and living souls be fed and encouraged. Very few churches have such a work as the Lord is doing here!’
+
+This, indeed, was the sad part of working in the Church of England then. Even still, there is much discouragement on this head and too many living souls, who would not willingly go, are driven away from their own Church, to seek teaching in other communions but they cannot take their children and servants to witness priestly ceremonials, or to hear sacramental, as opposed to spiritual teaching neither can they conscientiously give countenance to these things, by going themselves.
+
+However, I endeavoured to pacify the people by begging them to be thankful for present privileges, and to trust God to lead them for the future.
+
+It is an awful thing to see and know that people come for bread, and get a stone for fish, and they get a serpent and for an egg, they are offered a scorpion (Luke xi. 11, 12). Exceedingly trying it is to be frowned upon by clerical brethren in the presence of Dissenters, who, to say the least, do know the difference between life and death. In one church we have the service elaborately rendered, and the sermon is nothing in another the sermon is everything, and the service most slovenly and, too often, souls remain unawakened, and perishing on all sides.

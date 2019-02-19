@@ -16,6 +16,7 @@ The work is provided here in Markdown format with one file per chapter, etc.
 The text for FDIL at **Project Gutenberg** is eBook [#14578](http://www.gutenberg.net/1/4/5/7/14578/).
 * It was digitised by Michael Madden and released on January 3, 2005. 
 * This is deficient in that chapter 25 was missing and subsequent chapters were misnumbered.
+* The Gutenberg text has not been corrected for OCR errors.
 
 ## Modern reprints
 FDIL is readily available in printed format from various suppliers, having been reprinted by several publishers since the 1960s.

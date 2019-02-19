@@ -30,7 +30,9 @@ FDIL is readily available in printed format from various suppliers, having been 
 6. _'Full Salvation', as Seen in Bunyan's Pilgrim's Progress_, 1884
 7. _Personal Experience, Lectures on Bunyan's Pilgrim's Progress_, 1884?
 8. _Building From The Top, and Other Readings_, 1884
-9. _Leaves From My Notebook_, 1889
+9. _The Lord Is Coming_, 1888
+10. _Leaves From My Note-book_, 1889
+11. _Gleanings From The Harvest_, 1894
 
 ## William Haslam online
 There is a website dedicated to [William Haslam](http://williamhaslam.org) maintained by Alasdair Denton of Cardiff.

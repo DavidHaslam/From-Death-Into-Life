@@ -35,7 +35,9 @@ FDIL is readily available in printed format from various suppliers, having been 
 ## William Haslam online
 There is a website dedicated to [William Haslam](http://williamhaslam.org) maintained by Alasdair Denton of Cardiff.
 
-There used to be an online forum too, linked to an [earlier version](https://web.archive.org/web/20110929014844/http://www.williamhaslam.org/) of the website. This became defunct a few years ago.
+There used to be an online forum too, linked to an [earlier version](https://web.archive.org/web/20110929014844/http://www.williamhaslam.org/) of the website. 
+
+This became defunct a few years ago, but a [snapshot](https://web.archive.org/web/20080703192818/http://www.williamhaslam.org/board/) from 2008 still exists.
 
 ## About myself
 Although my surname is Haslam, I have not been able to establish any direct family connection with the author.

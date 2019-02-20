@@ -5,6 +5,7 @@ The published text of “_From Death Into Life_” by William Haslam (1818-1905)
 The Reverend William Haslam is often described as the “Parson converted though his own sermon”. 
 * A modern biography written by Chris Wright was published in 2005 with the title “Haslam's Journey”.
 * This is mainly compiled from extracts from two of his autobiographical works.
+* A pensketch of [William Haslam](http://revival-library.org/index.php/pensketches-menu/evangelical-revivalists/william-haslam) is available at the Revival Library.
 
 ## Status
 FDIL is in the Public Domain. It was first published in 1880.
@@ -18,6 +19,9 @@ The text for FDIL at **Project Gutenberg** is eBook [#14578](http://www.gutenber
 * It was digitised by Michael Madden and released on January 3, 2005. 
 * This is deficient in that chapter 25 was missing and subsequent chapters were misnumbered.
 * The Gutenberg text has not been corrected for OCR errors.
+
+## Revival Library
+The etext was also formerly available from the [Revival Library](http://www.revival-library.org/) maintained by Tony Cauchi.
 
 ## Modern reprints
 FDIL is readily available in printed format from various suppliers, having been reprinted by several publishers since the 1960s.

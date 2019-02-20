@@ -22,7 +22,7 @@ The text for FDIL at **Project Gutenberg** is eBook [#14578](http://www.gutenber
 ## Modern reprints
 FDIL is readily available in printed format from various suppliers, having been reprinted by several publishers since the 1960s.
 
-My own copy is the Adam Gordon Reprints facsimile edition published in 1994, which is now out of print.
+My own copy is the [Adam Gordon Reprints](https://www.amazon.co.uk/dp/1874422117/) facsimile edition published in 1994, which is now out of print.
 
 ## Works by the same author
 1. _Perran-Zabuloe: With an Account of the Past and Present State of the Oratory of St. Piran in the Sands, and Remarks on Its Antiquity_, 1844

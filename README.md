@@ -1,9 +1,9 @@
 # From-Death-Into-Life
-The published text of "_From Death Into Life_" by William Haslam (1818-1905)
+The published text of “_From Death Into Life_” by William Haslam (1818-1905)
 
 ## Author
-The Reverend William Haslam is often described as the "Parson converted though his own sermon". 
-* A modern biography written by Chris Wright was published in 2005 with the title "Haslam's Journey".
+The Reverend William Haslam is often described as the “Parson converted though his own sermon”. 
+* A modern biography written by Chris Wright was published in 2005 with the title “Haslam's Journey”.
 * This is mainly compiled from extracts from two of his autobiographical works.
 
 ## Status
@@ -25,15 +25,20 @@ FDIL is readily available in printed format from various suppliers, having been 
 ## Works by the same author
 1. _Perran-Zabuloe: With an Account of the Past and Present State of the Oratory of St. Piran in the Sands, and Remarks on Its Antiquity_, 1844
 2. _The Cross and the Serpent: A Brief History of the Triumph of the Cross, Through a Long Series of Ages, in Prophecy, Types and Fulfilment_, 1846
-3. _The Threefold Gift of God: Or, Christ Jesus, the Object of Faith_, 1875
-4. _From Death Into Life: Twenty Years of My Ministry_, 1880
-5. _Yet Not I: More Years Of My Ministry_, 1882
-6. _'Full Salvation', as Seen in Bunyan's Pilgrim's Progress_, 1884
-7. _Personal Experience, Lectures on Bunyan's Pilgrim's Progress_, 1884?
-8. _Building From The Top, and Other Readings_, 1884
-9. _The Lord Is Coming_, 1888
-10. _Leaves From My Note-book_, 1889
-11. _Gleanings From The Harvest_, 1894
+3. _Notes of an address on Faith, at St. Paul's Cathedral, etc._, 1874
+4. _The Threefold Gift of God: Or, Christ Jesus, the Object of Faith, Hope and Love_, 1875
+5. _A Personal Christ_, 1878
+6. _From Death Into Life: Twenty Years of My Ministry_, 1880
+7. _“Yet Not I”: or, More Years Of My Ministry_, 1882
+8. _‘Full Salvation’, as Seen in Bunyan‘s Pilgrim’s Progress_, 1884
+9. _Personal Experience, Lectures on Bunyan‘s Pilgrim’s Progress_, 1884?
+10. _Building From The Top, and Other Readings_, 1884
+11. _The Lord Is Coming: A Plain Narrative of Prophetic Events in Their Order_, 1888
+12. _Leaves From My Note-book_, 1889
+13. _Notes from Keswick_, 1890
+14. _Gleanings From The Harvest_, 1894
+
+There are also a number of letters and sermon notes of William Haslam in some libraries.
 
 ## William Haslam online
 There is a website dedicated to [William Haslam](http://williamhaslam.org) maintained by Alasdair Denton of Cardiff.

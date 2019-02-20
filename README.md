@@ -3,7 +3,7 @@ The published text of “_From Death Into Life_” by William Haslam (1818-1905)
 
 ## Author
 The Reverend William Haslam is often described as the “Parson converted though his own sermon”. 
-* A modern biography written by Chris Wright was published by Highland Books in 2005 with the title [Haslam's Journey](https://highlandbks.com/book?isbn=1897913788).
+* A modern biography written by Chris Wright was published by Highland Books in 2005 with the title [_Haslam's Journey_](https://highlandbks.com/book?isbn=1897913788).
 * This is mainly compiled from extracts from two of his autobiographical works.
 * An Amazon Kindle [edition](https://www.amazon.co.uk/Haslams-Journey-Chris-Wright-ebook/dp/B07BSSBQDT/) is now also available.
 * A pensketch of [William Haslam](http://revival-library.org/index.php/pensketches-menu/evangelical-revivalists/william-haslam) is available at the Revival Library.

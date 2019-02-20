@@ -51,7 +51,7 @@ Seeing that I hesitated, he went on to say that he ‘knew many very good men, i
 
 >‘More dreadful still,’ I said, ‘must be the solemn reality and therefore, instead of shrinking from the thought and putting it off, I rather let it stir and rouse me to warn unbelievers, so that I may, by any means, stop them on their dangerous path. I think this is the only true and faithful way of showing kindness and that, on the other hand, it is the most selfish heartless, and cruel unkindness to let sinners, whether they are religious, moral, reformed, or otherwise, go on in an unconverted state, and perish.’
 
->‘Do you believe, then,’ said my visitor, ,‘in the fire of hell? Do you think it is a material fire?’
+>‘Do you believe, then,’ said my visitor, ‘in the fire of hell? Do you think it is a material fire?’
 
 >‘I do not know ; I do not wish to know anything about it. I suppose material fire, like every other material thing, is but a shadow of something real. Is it not a fire which shall burn the soul―a fire that never will be quenched―where the worm will never die?’
 

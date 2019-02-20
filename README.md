@@ -12,6 +12,11 @@ FDIL is in the Public Domain. It was first published in 1880.
 
 ## Markdown
 The work is provided here in Markdown format with one file per chapter, etc.
+* The table of **CONTENTS** is formatted as monospace to preserve column alignments.
+* Page numbers therein refer to the original 1880 edition.
+
+## Illustrations
+The original work included a few illustrations. These need to be scanned and uploaded as images.
 
 ## Gutenberg
 The text for FDIL at **Project Gutenberg** is eBook [#14578](http://www.gutenberg.net/1/4/5/7/14578/).

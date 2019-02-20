@@ -1,6 +1,6 @@
-# Chapter IX.
+## Chapter IX.
 
-## The Visitor
+# The Visitor
 
 ### 1851
 

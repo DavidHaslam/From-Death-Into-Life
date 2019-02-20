@@ -1,6 +1,6 @@
-# Chapter XII.
+## Chapter XII.
 
-## Billy Bray
+# Billy Bray
 
 ### 1852
 

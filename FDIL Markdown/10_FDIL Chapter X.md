@@ -1,6 +1,6 @@
-# Chapter X.
+## Chapter X.
 
-## The First Christmas
+# The First Christmas
 
 ### 1851-2
 

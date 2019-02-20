@@ -1,6 +1,6 @@
-# Chapter XI.
+## Chapter XI.
 
-## Dreams And Visions
+# Dreams And Visions
 
 ### 1851-4
 

@@ -1,4 +1,4 @@
-# From-Death-Into-Life
+# From Death Into Life
 The published text of “_From Death Into Life_” by William Haslam (1818-1905)
 
 ## Author

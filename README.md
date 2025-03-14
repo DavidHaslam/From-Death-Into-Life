@@ -73,5 +73,9 @@ This became defunct a few years ago, but a [snapshot](https://web.archive.org/we
 
 The signifcance of the **WH Bulletin Board** lies in the fact that some of the forums contain text uploads of various works by and about William Haslam. These are still accessible through the **WayBack Machine** of the **Internet Archive**.
 
+## Private Facebook group
+There's now a private group on Facebook about William Haslam:
+[Rev'd William Haslam - converted by his own sermon, in his own pulpit!](https://www.facebook.com/groups/1148109113499963)
+
 ## About myself
 Although my surname is Haslam, I have not been able to establish any direct family connection with the author.
